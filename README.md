@@ -11,7 +11,7 @@
 - Callum Turner
 
 ### Why I Like It
-*Eternity* is a **romantic comedy** about a love triangle that follows a woman choosing between two men, one of whom she spent her life with.
+*Eternity* is a **romantic comedy** about a love triangle that follows a woman choosing between two men, one of whom she spent her life with. Also it reminds me of my ex and me we watched together and she said "its us" maybe she means were still gonna choose together at the end but well she left me for another man and thats for another movie which is the notebook 😆
 
 ### Ratings
 | Source | Score |
